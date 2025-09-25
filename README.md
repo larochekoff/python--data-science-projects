@@ -20,7 +20,7 @@
     - Email :
       nguessanalealarochekoffi@gmail.com
       - 💼 LinkedIn:
-        ( https ://www.linkedin.com/in/nguessan-aléa-laroche-koffi)
+        ( https ://www.linkedin.com/in/n-guessan-aléa-laroche-koffi)
         - Github :
           Larochekoff (https :// github.com/Larochekoff)
 
